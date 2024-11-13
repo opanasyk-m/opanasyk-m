@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @opanasyk-m (Mariia)
 - ⚡ I'm a Recruiter
 - 🌱 Located in Lviv (Ukraine)
-- 📫 Email: mariyaopanasyk@gmail.com Telegram: @opanasyk_m
+- 📫 Email: mariya594@ukr.net Telegram: @opanasyk_m
 
 
 <!---
